@@ -4,6 +4,7 @@
 ##### 88 Boulevard de l'yser, 76000 Rouen
 #### (+39) 6 05 95 28 70
 #### dboudoh@normandiewebschool.fr
+#### dboudoh@gmail.com
 ### 24 ans
 
 
